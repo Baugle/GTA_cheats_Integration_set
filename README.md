@@ -50,7 +50,7 @@
 
 ✉️ 邮箱：gongfuji1688@gmail.com  
 
-✈️ Telegram：@haihaihailaoba  
+✈️ Telegram：@Deleted
   
 🐦 Twitter：@gongfuji1688  
 
